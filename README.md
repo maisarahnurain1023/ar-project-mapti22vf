@@ -1,1 +1,0 @@
-# ar-project-mapti22vf
